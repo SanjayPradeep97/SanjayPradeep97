@@ -1,4 +1,4 @@
-### Glad you stumbled onto my page! I'm Sanjay Pradeep 👋
+### Glad you stumbled onto my page! I'm Sanjay 👋
 
 *Like the particles I study, you probably got here by a random walk.*
 
